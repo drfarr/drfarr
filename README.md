@@ -3,7 +3,10 @@
 
 A software engineer based in the UK with 100+ years experience and a passion for building beautiful, performant software that enriches the lives of my fellow humans.
 
-I like to spend my free time rallying against choke point capitalism, understanding technology from a feminist perspective and making the technology space more diverse and inclusive for people of different races and genders and maybe animals at somepoint? 😀.
+Currently I'm :
+- Rallying against choke point capitalism 🥰
+- Understanding technology from a feminist perspective 💪🏿😘 
+- Making the technology space more diverse and inclusive for people of different races and genders (and hopefully animals at somepoint😻)✊🏿😍
 
 Let's work together! https://danny.engineering
 
